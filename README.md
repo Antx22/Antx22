@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Antx22
 - 👀 I’m interested in Finance, identification, crypto long term investing, DAOs management and governance.
-- 🌱 I’m currently learning Sailing yacht master, DAO real examples etc.
+- 🌱 I’m currently learning sailing DAO real examples and agentic instruments in finance
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me discord @x22#3792 
 
